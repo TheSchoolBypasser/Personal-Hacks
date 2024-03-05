@@ -1,1 +1,1 @@
-#HACK CREDITS TO BLOOKET ON GITHUB
+# credit to Blooket on github for hacks and the other contribuator for inspring me to make this!
